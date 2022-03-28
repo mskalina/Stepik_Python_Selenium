@@ -1,0 +1,1 @@
+the text of the tasks is available on the course website https://stepik.org/course/575/syllabus
